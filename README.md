@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial inteligence
 - 🌱 I’m currently learning programing language
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me insta=__amiitt___
+- 📫 How to reach me insta= __amiitt___
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
